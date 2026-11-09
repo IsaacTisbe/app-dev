@@ -16,4 +16,3 @@
 > A new chapter can start at any age.
 
 ![THE ROOKIE] (<img width="1200" height="627" alt="the rookie" src="https://github.com/user-attachments/assets/1c671867-6b30-48fb-8a61-a4246e80ed6f" />)
-v
